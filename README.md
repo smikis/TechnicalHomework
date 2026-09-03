@@ -1,1 +1,6 @@
 # TechnicalHomework
+
+
+
+\#Smiki is sick
+
